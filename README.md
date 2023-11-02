@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @farhanfaarshad
+- I’m interested in maths
+- 🌱 I’m currently learning maths in qmul
